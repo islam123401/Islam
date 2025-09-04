@@ -1,2 +1,0 @@
-# Islam
-I dont know
